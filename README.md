@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Ingeniero de software full stack<br>+3 Años de experiencia <br>💬 Amo aprender y conocer gente nueva<br>⚡ Me encanta el deporte
+💻 Ingeniero de software full stack<br>+5 Años de experiencia <br>💬 Amo aprender y conocer gente nueva<br>⚡ Me encanta el deporte
 
 
 ## 🌐 Socials:
